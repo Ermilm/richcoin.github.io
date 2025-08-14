@@ -1,0 +1,1 @@
+# richcoin.github.io
